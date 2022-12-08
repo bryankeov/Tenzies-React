@@ -1,0 +1,1 @@
+A game of chance. How many cycles does it take for you to match all the slots?
